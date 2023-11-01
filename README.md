@@ -6,7 +6,7 @@
 
 🖤Tenho 17 anos de idade 
 
-🖤Trabalho de Babá
+🖤Trabalho de mercado
 
 🖤Estou no 2°ano do Ensino Médio
 
